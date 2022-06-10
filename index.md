@@ -10,3 +10,4 @@ Instagram: jack.farber_
 Snapchat: jack-farber11
 ---
 I'm glad you are here. I plan to talk about my rapping skills.
+
